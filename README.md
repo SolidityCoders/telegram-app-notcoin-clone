@@ -27,5 +27,9 @@
 
 ![image](https://github.com/user-attachments/assets/edd4d8f5-39c8-4ab8-ace2-0cd31b5c9718)
 
+### Keywords
+
+#notcoin #telegram #tapgame #tapping #notcoinclone #telegramwebapp #telegramapp 
+
 
 
